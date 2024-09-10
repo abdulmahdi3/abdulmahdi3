@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ Fun fact I want to be number one in cybersecurity.
+⚡ Fact I want to be number one in cybersecurity.
 
 
 ## 🌐 Socials:
